@@ -1,4 +1,4 @@
-
+Experience bedwars like never before with bedwars secure Script, the #1 Script. Includes instant win and custom skins for unbeatable performance.
 
 
 
